@@ -1,1 +1,38 @@
+# 2023年4月2日主日信息
+# 题目：各人任意而行
+# 经文：士师记17-21章
+# 讲员：王姊妹
+<audio controls src="./各人任意而行.mp3"></audio>
+![image](https://user-images.githubusercontent.com/91267933/229330463-f4c32809-ffb3-40b4-b81f-09f22f1a555e.png)
+![image](https://user-images.githubusercontent.com/91267933/229330471-d9c9b69a-e4d1-42de-9249-a1cbf91d8943.png)
+![image](https://user-images.githubusercontent.com/91267933/229330475-f82b90f4-1a34-45c3-bfbc-4cd0df29b865.png)
+![image](https://user-images.githubusercontent.com/91267933/229330481-aa2bd28a-ad6f-4a45-8110-6c956b57fcc6.png)
+![image](https://user-images.githubusercontent.com/91267933/229330484-39379d5c-a5f6-4442-a940-0687e2f50a28.png)
+![image](https://user-images.githubusercontent.com/91267933/229330487-19e6f12c-0ae7-45b0-894f-6f3d36652564.png)
+![image](https://user-images.githubusercontent.com/91267933/229330490-32884467-6b5b-4758-95d8-70af1a1158fe.png)
+![image](https://user-images.githubusercontent.com/91267933/229330491-35ed766e-5315-4c31-95d7-7a09f415d8ee.png)
+![image](https://user-images.githubusercontent.com/91267933/229330495-87f0914f-2be7-4cb5-b5a2-ae7bea507ecc.png)
+![image](https://user-images.githubusercontent.com/91267933/229330497-936cb566-1c2d-4b7f-a304-94a72ef380c4.png)
+![image](https://user-images.githubusercontent.com/91267933/229330498-da41e13a-5204-4566-be45-14c9604bce06.png)
+![image](https://user-images.githubusercontent.com/91267933/229330503-99124153-b7a2-43be-a2e8-c8b59c22155e.png)
+![image](https://user-images.githubusercontent.com/91267933/229330506-ef989909-5fc6-4d68-99d8-c7c9db5b44c1.png)
+![image](https://user-images.githubusercontent.com/91267933/229330510-ca164b0c-ae5a-4b27-b581-8cc76236515d.png)
+![image](https://user-images.githubusercontent.com/91267933/229330512-cc23927f-1404-4bde-801c-e5b14b8f48d5.png)
+![image](https://user-images.githubusercontent.com/91267933/229330514-9fd73676-c2e1-4913-b17f-baef7d34daf5.png)
+![image](https://user-images.githubusercontent.com/91267933/229330517-84fe5a7b-ba4a-4dd4-96f0-d77904b437ea.png)
+![image](https://user-images.githubusercontent.com/91267933/229330519-5016caa5-6aa5-4425-a68e-dad6edfc8c76.png)
+![image](https://user-images.githubusercontent.com/91267933/229330520-1acfa757-9b3f-4fd3-b294-e9a4fe6d9fd6.png)
+![image](https://user-images.githubusercontent.com/91267933/229330523-87472631-df62-412c-b8f4-8773dca7d99d.png)
+![image](https://user-images.githubusercontent.com/91267933/229330528-d24f9060-149d-4105-bf7f-21333c2282b1.png)
+![image](https://user-images.githubusercontent.com/91267933/229330532-65e87ceb-b87d-46e8-ae50-61d909255896.png)
+![image](https://user-images.githubusercontent.com/91267933/229330534-1f4e93a2-a724-482b-9a8f-8391094e0db9.png)
+![image](https://user-images.githubusercontent.com/91267933/229330538-49af6323-e377-4233-8646-4cf5a8f51cdd.png)
+![image](https://user-images.githubusercontent.com/91267933/229330541-c307f0b7-db0f-4bbc-8415-db9b117e53f3.png)
+![image](https://user-images.githubusercontent.com/91267933/229330545-c8ce5b78-8388-46b5-9ece-88e0b68ba60f.png)
+![image](https://user-images.githubusercontent.com/91267933/229330549-d09750c5-2bbb-4d32-964c-09fbe9601cb0.png)
+![image](https://user-images.githubusercontent.com/91267933/229330555-fd46af72-865c-46b7-aec4-1ce54939fece.png)
+![image](https://user-images.githubusercontent.com/91267933/229330559-764ada50-8e62-4a91-9ed9-3e4f8832451f.png)
+![image](https://user-images.githubusercontent.com/91267933/229330560-403b8899-58bf-4f7f-a9c1-9e5fed3c72a2.png)
+![image](https://user-images.githubusercontent.com/91267933/229330566-83b1bc74-eec9-4e28-a00f-2e1a1dfb8d92.png)
+![image](https://user-images.githubusercontent.com/91267933/229330569-fd02a874-b691-47dc-8395-e578bc584015.png)
 
